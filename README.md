@@ -1,3 +1,3 @@
-# Snowden
-My name is iambsa
+# iambsa
+My name is Biyjanov Sardor
 
